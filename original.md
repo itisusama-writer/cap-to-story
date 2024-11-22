@@ -1,2 +1,30 @@
 - Girl playing with the water by the river side and looking towards the mountains.
-- 
+- Girl walking towards the edge of the cliff.
+- 2 Girls, one in glasses and black dress, other in yellow saree(cup pose) in university.
+- "Aisi kon si jaga hai jahan us ki awazen mera picha nahi karen gi..."
+- Birthday girl, Happy Birthday with ketchup on plate, and wishes on instagram.
+- Girl in mountain, sitting on a ledge petting a goat, sad.
+- Black top sleeveless girl walk after the rain on road in the evening in dark.
+- 4 gitls chanting something in a echoing room.
+- Girl in black hoodie, in a public concert, face covered, looking at the stage. 
+- LCWU haunted abandoned girls hostel.
+- Girl at night looking back trying to run and hide from someone.
+- Girl sitting on a bench outside the hospital trying to get in but didn't.
+- Man wearing a beenie walking in a crowded bazar (Jawani ki ye umar aksar mann pasand chizon ki qurbbani mangti hai)
+- Girl took same footage of her in girls bathroom of university for 15 days. She waited for someone.
+- Girl sleeps in car backseat. She was taken somewhere without her liking.
+- Girl afraid of rain looking at the rain ten she remembers something and it triggers her and she went inside the rain and enjoys.
+- 50+ cars on a single road with full speed driving somewhere.
+- Girl lying on bed reading a book. Past memories triggered her and she started crying.
+- 4 Girls on stage photoshoot. It was all after a tragic event that had happened.
+- Girl looks at her heroic stuff from the past and she stared to jump in her heroic life again.
+- Girl in the rain, night time(chand lamhat k hi sahi...)
+- Girl finally took him through the airport. A heroic entry.
+- Journey of 4 years going to end soon. Era of graduation.
+- Girl with a scar on her neck and she hides it. Crying.
+- Girl ankle twisited by unknow mean when she was minding her own business in a wedding.
+- Doba rahu sada tere khayalon mein...
+- He is your heart but not your live. Girl cries annd her friend tries to stop.
+- Artist girl setup her work station in an abandoned old building.
+- Someone in a cars finally took a road to the Lahore(hotey hi sham teri galiyon mein aana jana...)
+
