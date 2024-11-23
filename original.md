@@ -5,7 +5,7 @@
 - Birthday girl, Happy Birthday with ketchup on plate, and wishes on instagram.
 - Girl in mountain, sitting on a ledge petting a goat, sad.
 - Black top sleeveless girl walk after the rain on road in the evening in dark.
-- 4 gitls chanting something in a echoing room.
+- 4 girls chanting something in a echoing room.
 - Girl in black hoodie, in a public concert, face covered, looking at the stage. 
 - LCWU haunted abandoned girls hostel.
 - Girl at night looking back trying to run and hide from someone.
@@ -27,4 +27,18 @@
 - He is your heart but not your live. Girl cries annd her friend tries to stop.
 - Artist girl setup her work station in an abandoned old building.
 - Someone in a cars finally took a road to the Lahore(hotey hi sham teri galiyon mein aana jana...)
-
+- Girl at night walking out of somewhere, raise hands as if she accomplished something.
+- A female doctor, sister of someone going to a clinical rotation.
+- A girl, sad walking by the shop that showcase art canvas paintings. She touches them and got lost in memories.
+- Girl siting in the forest that had so many horses and it is Autumn.
+- For your peace of mind, don't try to understand everything.
+- House was burned and was getting viewed from the distance.
+- Girl gone university and on the stairs her ankle got badly broken, she was unable to walk. She was taken to the hospital. It all happend out of a sudden.
+- Ta umar mein chala tab kahin kadmon ko hui hasil.
+- Girl took a synthetic face mask off that covers her identity. (revelation)
+- Duniya ye jeet, dil har gaya
+- Girl punching the wall. (mere lehjey pe tazkara karney waley log mere dard se guzren to mar jaen.)
+- It was a car accident and a girl fainted she was taken to the hospital. She lost someone dear to her. 
+- Girl walking on the mud path in the mountain. Early morning, foggy area.
+- Girl waling towards a university hostel as after a very long time. It was for something important.
+- Zindgi mein khush rehna sikh raha tha. Zindgi ne akeley rehna sikha dia.
